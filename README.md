@@ -1,4 +1,4 @@
-## 👏 Hi, I'm *Anton Driskll*
+## 👏 Hi, I'm *Anton Driskell*
 ##  About Me
 _I'm majoring in B.S. Cybersecurity @ UT San Antonio. I enjoy playing and creating games in my free time._
 ## ⚒️ Skills
